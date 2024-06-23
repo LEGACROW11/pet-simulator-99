@@ -1,1 +1,1 @@
-# pet-simulator-99
+# Pet Simulator 99 Dupe Script 2024 [PS99]
